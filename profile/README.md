@@ -6,4 +6,3 @@ Proudly owned and founded by our CEO/Founder [Christopher Fox Junior](https://gi
 CONTACT US
 
 Email: [wolftechinnovationsgithub@gmail.com](mailto:wolftechinnovationsgithub@gmail.com)
-Discord: _wolftechinnovations_
