@@ -5,4 +5,4 @@ Proudly owned and founded by our CEO/Founder [Christopher Fox Junior](https://gi
 _________________________
 CONTACT US
 
-Email: [christopher.fox@wolfos.uk](mailto:christopher.fox@wolfos.uk)
+* Email: [christopher.fox@wolfos.uk](mailto:christopher.fox@wolfos.uk)
