@@ -5,4 +5,4 @@ Proudly owned and founded by our CEO/Founder [Christopher Fox Junior](https://gi
 
 CONTACT US
 _________________________
-Email: [wolftechinnovationsgithub@gmail.com](mailto:wolftechinnovationsgithub@gmail.com)
+Email: [christopher.fox@wolfos.uk](mailto:christopher.fox@wolfos.uk)
