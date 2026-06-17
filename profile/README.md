@@ -1,7 +1,7 @@
-# Welcome to the WolfTech Innovations profile
+# Welcome to WolfTech Labs
 
-Welcone to WolfTech Innovations, a company designed to push limits.
-Proudly owned and founded by our CEO/Founder [Remi Mixo](https://github.com/remimixo)
+Welcone to WolfTech Labs (WolfTech innovations), a company designed to push limits and break glass ceilings.
+Founded and ran by our CEO/Founder [Remi Mixo](https://github.com/remimixo)
 _________________________
 ## **CONTACT US**
 
